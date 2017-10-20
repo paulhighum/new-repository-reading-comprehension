@@ -9,3 +9,5 @@ My favorite past times are reading, watching tv, skiing, scuba diving, and trave
 I also enjoy computer games.
 
 I also like drinking beers, specifically IPA's and Sours
+
+I also like many animals, including rhinos and snow leopards. 
